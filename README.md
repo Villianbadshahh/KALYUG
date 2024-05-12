@@ -1,9 +1,9 @@
 # VSPAM
-<h1 align="center"><b>[✨🥀] ™°‌ 🫧 🇴 🇽 𝐘 𝐆 𝐄 𝐍 [✨🥀]</b></h1>
+<h1 align="center"><b>[✨🥀] ™°ㅤㅤ❥ㅤ   ꪜ 𝛊 ɭ ɭ ᧘ 𝛊 𝛈 ✨🦅[✨🥀]</b></h1>
 
-<h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
+<h4 align="center"> ITZZ  ㅤㅤ❥ㅤ   ꪜ 𝛊 ɭ ɭ ᧘ 𝛊 𝛈 ✨🦅 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/aao_kabhi_humare_pe"><img src="https://te.legra.ph/file/715bf6a70ee8dac0b396a.jpg" width="400"></a></p>0
+<p align="center"><a href="https://t.me/aao_kabhi_humare_pe"><img src="https://telegra.ph/file/7243ac68c3d374c9c2a2c.jpg" width="400"></a></p>0
 
 
 > ⭐️ Thanks to everyone for using this op ™°‌ 🫧 🇴 🇽 𝐘 𝐆 𝐄 𝐍. That is the greatest pleasure we have !
